@@ -4,7 +4,7 @@ Seek wisdom from the mystical Ball 8 and make decisions with the Ball 8 Poll! �
 
 ## Use the Ball 8 Poll
 
-[Ask a Question](https://your-username.github.io/ball-8-poll/) 🕹️
+[Ask a Question](https://aryan0-1maurya.github.io/ball-8-poll/) 🕹️
 
 ## About the Ball 8 Poll
 
